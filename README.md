@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: 
 🔭 I’m currently pursuing my BTech<br>🌱 I’m currently learning everything🤣<br>💬 Ask me about anything related to my Domain<br>📫 How to reach me: aniket.choudhary3042@gmail.com<br>⚡ Fun fact: I ❤ playing Football⚽
 
 
